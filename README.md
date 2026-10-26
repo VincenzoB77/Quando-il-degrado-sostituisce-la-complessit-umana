@@ -1,4 +1,4 @@
-# Le-citt-della-pianura-e-la-banalizzazione-del-disagio-esistenziale
+# Le-citta'-della-pianura-e-la-banalizzazione-del-disagio-esistenziale
 Recensione psicologica critica
 
 Le città della pianura propone una rappresentazione dell'Italia fortemente sbilanciata verso il degrado esistenziale, la dipendenza, l'alienazione e l'autodistruttività. Dal punto di vista psicologico, il film sembra ridurre la complessità dell'esperienza umana a una sequenza di comportamenti disfunzionali privi di reale evoluzione interiore. I personaggi appaiono intrappolati in una condizione di stagnazione emotiva e morale che finisce per trasformarsi in stereotipo. Il risultato è un'opera che privilegia la provocazione e il nichilismo rispetto alla comprensione autentica della sofferenza umana, offrendo un'immagine dell'Italia cupa, deformata e priva di speranza.*
